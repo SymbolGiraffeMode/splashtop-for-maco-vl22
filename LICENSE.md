@@ -1,4 +1,4 @@
-
+Splashtop for macOS automatic Plugin: chat-support & screen-sharing offers the most advanced Splashtop for macOS plugin, with chat-support and screen-sharing. Ideal for macOS
 
 
 
